@@ -1,2 +1,2 @@
-Jeve Computers
-Purchase your computer
+Jeve Computers,
+Where you can make Purchase of your preferred computer
